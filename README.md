@@ -1,1 +1,1 @@
-Git Tutorial Christopher Pan
+UChicago Student Resource Guide
